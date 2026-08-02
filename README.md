@@ -16,7 +16,7 @@ all borrowed from Wikipedia, no AI was used in this
 
 
 🪐. saturn's interior is thought to be composed of a rocky core, surrounded by a deep layer of metallic hydrogen, an intermediate layer of liquid hydrogen and liquid helium, and an outer layer of gas. saturn has a pale yellow hue, due to ammonia crystals in its upper atmosphere. an electrical current in the metallic hydrogen layer is thought to give rise to saturn's planetary magnetic field, which is weaker than earth's, but has a magnetic moment 580 times that of Earth because of saturn's greater size. saturn's magnetic field strength is about a twentieth that of Jupiter.[27] The outer atmosphere is generally bland and lacking in contrast, although long-lived features can appear. Wind speeds on Saturn can reach 1,800 kilometres per hour (1,100 miles per hour).
-꧁⎝ 𓆩༺✧༻𓆪 
+꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 
 
@@ -32,8 +32,7 @@ all borrowed from Wikipedia, no AI was used in this
 
 
 
-🪐. saturn is a gas giant, composed predominantly of hydrogen and helium, and lacks a definite surface. saturn has a "diffuse core", extending 60% of the way to the planet's surface, composed of an indeterminate gradient of rock and ice toward the center. saturn is the only planet of the Solar System that is less dense than water—about 30% less.[33] the average specific density of the planet is 0.69 g/cm3 due to its atmosphere. Jupiter's mass is 318 times Earth's,[34] while saturn is only 95 times earth's. together, jupiter and saturn hold 92% of the total planetary mass in the solar system.
-꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+🪐. saturn is a gas giant, composed predominantly of hydrogen and helium, and lacks a definite surface. saturn has a "diffuse core", extending 60% of the way to the planet's surface, composed of an indeterminate gradient of rock and ice toward the center. saturn is the only planet of the Solar System that is less dense than water—about 30% less.[33] the average specific density of the planet is 0.69 g/cm3 due to its atmosphere. Jupiter's mass is 318 times Earth's,[34] while saturn is only 95 times earth's. together, jupiter and saturn hold 92% of the total planetary mass in the solar system. ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 
 
