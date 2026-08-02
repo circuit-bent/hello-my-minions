@@ -2,7 +2,7 @@
 
 all borrowed from Wikipedia, no AI was used in this
 
-                       ♡  ╱|、
+                        ♡  ╱|、
                           (˚ˎ 。7  
                            |、˜〵          
                           じしˍ,)ノ
@@ -30,6 +30,10 @@ all borrowed from Wikipedia, no AI was used in this
 🪐. saturn is named after the roman god of wealth and agriculture, who was the father of the god jupiter. its astronomical symbol (♄) has been traced back to the greek Oxyrhynchus Papyri, where it can be seen to be a greek kappa-rho ligature with a horizontal stroke, as an abbreviation for Κρονος (Cronus), the Greek name for the planet ().[29] It later came to look like a lower-case greek eta, with the cross added at the top in the 16th century to Christianize this pagan symbol.the Romans named the seventh day of the week Saturday, Sāturni diēs, "Saturn's Day", for the planet saturn.
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
+
+
+🪐. saturn is a gas giant, composed predominantly of hydrogen and helium, and lacks a definite surface. saturn has a "diffuse core", extending 60% of the way to the planet's surface, composed of an indeterminate gradient of rock and ice toward the center. saturn is the only planet of the Solar System that is less dense than water—about 30% less.[33] the average specific density of the planet is 0.69 g/cm3 due to its atmosphere. Jupiter's mass is 318 times Earth's,[34] while saturn is only 95 times earth's. together, jupiter and saturn hold 92% of the total planetary mass in the solar system.
+꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 
 
