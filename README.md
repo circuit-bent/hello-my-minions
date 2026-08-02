@@ -1,7 +1,11 @@
 # hello-my-minions
 
 all borrowed from Wikipedia, no AI was used in this
-❉ ╤╤╤╤ ✿ ╤╤╤╤ ❉
+
+                       ♡  ╱|、
+                          (˚ˎ 。7  
+                           |、˜〵          
+                          じしˍ,)ノ
 
 
 
